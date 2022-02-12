@@ -1,4 +1,9 @@
-![1](https://user-images.githubusercontent.com/93186792/153693068-5af69959-1d55-41a1-ac8c-e666e06d9a8b.gif)
+![me-1](https://user-images.githubusercontent.com/93186792/153693319-5d66fedc-e434-45c1-8321-0b8785643e69.gif)
+![me-2](https://user-images.githubusercontent.com/93186792/153693327-3267694d-d383-4e27-aefa-68b0810fe6ab.gif)
+![Me-3](https://user-images.githubusercontent.com/93186792/153693332-7b319171-7983-4467-a837-ad11597933a6.gif)
+
+
+
 
 
 ### Hi there 👋
